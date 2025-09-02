@@ -1,1 +1,1 @@
-# intro-nemo-repo
+Har 5 nerskrivba ideer därav någon kan vara bra och som vi kanske kan bygga upp, och kanske kan få lite cash av det.
